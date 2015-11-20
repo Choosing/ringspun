@@ -1,2 +1,13 @@
-# ringspun
-Original design by CARLYchan printed on 100% ringspun cotton. If you're feeling humble and shy for once, let Kiho tell the world for you. Model is 5'2" and wearing size M. 
+Shirt Choosing Guide
+
+
+
+<a href=http://dereshop.com/>Men dislike</a> opting for ill-fitting garments now. Regardless of whether it is for you or anyone else, choosing the right clothing is quite complicated. Here are some factors to keep in mind while choosing right shirt. It will cost hours dressed in this shirt. Therefore, it is important to make sure that they are not only relaxed but made to last as well. However, most of you are more used to purchasing simply by considering chest size, it is important to consider several other factors like length of arms, broadness of shoulders and size of neck opening.
+1.	Convenience - Have you ever had that day when you just cannot seem to choose what to wear? Moreover, the scariest factor is that you are not really going anywhere; you are just out to buy something simple. Well, a cute tee shirt is something that will fix your clothing collection issues. Just have several of these clinging in your wardrobe, and you will recognize just how useful they are by the period of your time you invest dressed in them.
+T-shirts by themselves are the choice for any individual's clothing collection. May it be a man, a kid or a woman? Cute designs t-shirts are a plus as these tops have <a href=http://dereshop.com/>cute design</a> on them that add to the attraction of your shirt.
+2.	Cost-effective - In judgment to other kinds of outfits, t-shirts with cute t-shirt designs and v-neck shirt designs are relatively inexpensive. You can search the Internet for sites that keep sales for their tops every now and after that.
+3.	Permanently fashionable - In contrast to many outfits’ collection options that go out of fashion as soon as the months are over, cute t-shirts and v-neck shirt never go out of favor. If you take proper care of them, you may even go as far as moving them on to your sis. If you have an excellent design, keep it until the time when it can be known as classic, and your outfits will never look as awesome.
+4.	Express your point - Cute funny t-shirts are also acquirable with a range of phrases and styles to select from. Some shirts can be point funny; other tops can have claims that express how you come to feel, while others can express your crazy personality and mind-set. Either way, these tops can say what you want to say without having to open your mouth.
+5.	Excellent Gift Ideas - Cute shirts, tsundere shirt and anime shirt are also great gift suggestions for everyone. For one thing, you know that everybody would wear tops, and <a href=http://dereshop.com/>t-shirt</a> sizes usually are available for all physiques. 
+As long as you find a shirt that catches the one you plan to give the shirt to, then your gift is a sure shoo in among your friends.
+
